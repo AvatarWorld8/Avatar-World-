@@ -6,4 +6,4 @@ Avatar World Mod APK is an engaging simulation and role-playing mobile game that
 
 ## Download & Resources
 For the latest updates, guides, and safe downloads, visit our official platform:
-[Avatar World Mod Website](https://avartarworldmod.com/)
+[avatar world mod gems ](https://avartarworldmod.com/)
